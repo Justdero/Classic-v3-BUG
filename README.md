@@ -2,7 +2,7 @@
 
 <h1 align="center">ꪶ𝕯𝖆𝖗𝖐 𝕭𝖔𝖙-𝗩3ꫂ<br></h1>
 <p align="center">
-<img src="https://telegra.ph/file/a2e5d1851171e21e7ba82.jpg" />
+<img src="https://telegra.ph/file/873f7994874e27bd0e55.png" width="650" height="500"/>
 </p>
 
 <p align="center">
